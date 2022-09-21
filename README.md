@@ -2,3 +2,6 @@
 
 Team Member 2:
 some interesting stuff about me
+
+chang?
+me and you?
